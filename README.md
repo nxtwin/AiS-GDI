@@ -3,6 +3,6 @@ NAVIGUIDE for Berry-Mappemonde optimal routing | Project Overview on Garden
 
 https://garden.taikai.network/fr/projects/cmjxywgp201gxmmhqeyt7qm9o/about
 
-References & Links | Zotero
+AiS-GDI References & Links | Zotero
 
 https://www.zotero.org/groups/6391551/ais-gdi/collections/XA8YZJJJ/collection

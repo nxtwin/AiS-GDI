@@ -5,4 +5,4 @@ https://garden.taikai.network/fr/projects/cmjxywgp201gxmmhqeyt7qm9o/about
 
 References & Links | Zotero
 
-https://www.zotero.org/groups/6391551/ais-gdi/library
+https://www.zotero.org/groups/6391551/ais-gdi/collections/XA8YZJJJ/collection
